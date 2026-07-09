@@ -26,14 +26,7 @@
 <img width="99" height="56" alt="1000070682" src="https://github.com/user-attachments/assets/3a2cffdb-4354-4f77-ae57-bcb89db0c3f2" />
 <img src="https://files.catbox.moe/g8rtcv.gif">
 <img width="99" height="56" alt="1000070683" src="https://github.com/user-attachments/assets/7e4fa546-1ee6-469b-9137-07071bf8938d" />
-<img src="https://file.garden/Z411m2R_ijdAiZ-J/tumblr_inline_oqo3f7JD0X1u5rvwj_500.gif">
-<img src="https://file.garden/Z411m2R_ijdAiZ-J/ezgif-22d93d7381fd85.gif">
-<img width="99" height="56" alt="изображение_2026-06-13_223746785" src="https://github.com/user-attachments/assets/de47b8a1-c10f-438a-ac5b-dbada7d1d807" />
-<img width="99" height="56" alt="изображение_2026-06-13_222113920" src="https://github.com/user-attachments/assets/451c13f5-6ee9-4c01-b9ff-955dea3b5203" />
-<img width="99" height="56" alt="изображение_2026-06-13_222330368" src="https://github.com/user-attachments/assets/ecacfc8d-3fc1-4747-8eae-4869b3bf0f52" />
-<img width="99" height="56" alt="изображение_2026-06-13_223634337" src="https://github.com/user-attachments/assets/0907839b-0cbe-4a82-a6cc-18a2f56b5bb7" />
-<img width="99" height="56" alt="изображение_2026-06-18_135055103" src="https://github.com/user-attachments/assets/53c2726e-d68f-4160-88b9-5be13cbad506" />
-<img width="95" height="60" alt="tumblr_ad041772b4e028386f36d8982e6feb64_967ae040_100" src="https://github.com/user-attachments/assets/a2938c00-aeb7-4f1d-b4ef-d291e8216e9d" />
+
 
 ㅤㅤ ㅤ ㅤ ㅤㅤㅤㅤ ㅤ ㅤ ![1000071509](https://github.com/user-attachments/assets/93f90f36-4f29-4fc8-9399-03b98974a5bd)
 
