@@ -27,7 +27,7 @@
 <img src="https://files.catbox.moe/g8rtcv.gif">
 <img width="99" height="56" alt="1000070683" src="https://github.com/user-attachments/assets/7e4fa546-1ee6-469b-9137-07071bf8938d" />
 
-ㅤㅤ ㅤ ㅤ ㅤㅤㅤ ㅤ ㅤ <img width="490" height="15" alt="608021174-93f90f36-4f29-4fc8-9399-03b98974a5bd" src="https://github.com/user-attachments/assets/4e27182b-ffa3-4a93-9c95-d64f97941e1e" />
+ㅤㅤ ㅤ ㅤ ㅤㅤㅤ ㅤ ㅤ <img width="490" height="15" alt="1000072335" src="https://github.com/user-attachments/assets/bcf3cc6a-0d3b-407a-9288-4e935a8acec6" />
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤ ㅤ<img width="20" height="20" alt="121" src="https://github.com/user-attachments/assets/ff4f7a9b-33cb-4896-af1a-3034d95f4ed8" />![](https://komarev.com/ghpvc/?username=s4vko&label=LOVE✨Yukimi-chan.&style=plastic&abbreviated&color=FF69B4)
 
