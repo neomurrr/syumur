@@ -1,3 +1,5 @@
+ㅤㅤ<img width="800" height="7" alt="tumblr_05ac64d1ed438a2e3ca073780f9563b5_18a88103_2048" src="https://github.com/user-attachments/assets/04ed5339-b5e8-42cf-b83d-5559ae5018f9" />
+
 ㅤㅤ<img width="800" height="400" alt="mitsugi-paradise (2)-enhanced" src="https://github.com/user-attachments/assets/8ebe1a04-d612-40d1-b134-5e5a98086757" />
 
 
@@ -6,7 +8,7 @@
 ㅤㅤㅤ ㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤㅤ ㅤ ㅤ<img alt="" referrerpolicy="same-origin" src="https://i.postimg.cc/brpPRFYy/IMG_3608.webp" style="" title=""><img alt="" referrerpolicy="same-origin" src="https://files.catbox.moe/pa5tad.gif" style="" title=""><img alt="" referrerpolicy="same-origin" src="https://i.postimg.cc/k4x9KdmY/IMG_3609.webp" style="" title="">
 
 
-# ㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a> $\color{PaleTurquoise}˖⏖ⲇⲛⲓ : ⲟϭsⲉssⲓᴠⲉ, ⲏⲩⲣⲟⲥrⲓⲧⲉs,ⲛⲁrⲥⲓssⲓsⲧs,ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrs˖⏖$ <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>
+# ㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a> $\color{mediumTurquoise}˖⏖ⲇⲛⲓ : ⲟϭsⲉssⲓᴠⲉ, ⲏⲩⲣⲟⲥrⲓⲧⲉs,ⲛⲁrⲥⲓssⲓsⲧs,ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrs˖⏖$ <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>
 
 ㅤㅤ ㅤ ㅤ ㅤㅤㅤ ㅤ ㅤㅤ  <img width="490" height="15" alt="1000072335" src="https://github.com/user-attachments/assets/bcf3cc6a-0d3b-407a-9288-4e935a8acec6" />
 
