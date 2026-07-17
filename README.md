@@ -1,3 +1,4 @@
+ㅤ ㅤ ㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤ ㅤ<img width="110" height="66" alt="1000072802" src="https://github.com/user-attachments/assets/0157bfb9-569e-4a2b-9f2f-859da918735f" />ㅤ<img width="110" height="66" alt="1000072801" src="https://github.com/user-attachments/assets/a4a3d94c-9995-4f1a-aa1b-dbb7bd545976" />ㅤ<img width="110" height="66" alt="1000072803" src="https://github.com/user-attachments/assets/1ec3cb4b-6341-4170-90af-e9c04cd8737a" />
 
 ㅤㅤ<img width="800" height="7" alt="tumblr_11d114c38b5312a470cb1be2b9058415_d71d613f_400" src="https://github.com/user-attachments/assets/f4faa4bb-d728-4350-b8c2-1794ac7ecb66" />
 
@@ -6,8 +7,6 @@
 ㅤㅤ<img width="800" height="7" alt="tumblr_05ac64d1ed438a2e3ca073780f9563b5_18a88103_2048" src="https://github.com/user-attachments/assets/04ed5339-b5e8-42cf-b83d-5559ae5018f9" />
 
 
-
-ㅤ ㅤ ㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤ ㅤ<img width="110" height="66" alt="1000072802" src="https://github.com/user-attachments/assets/0157bfb9-569e-4a2b-9f2f-859da918735f" />ㅤ<img width="110" height="66" alt="1000072801" src="https://github.com/user-attachments/assets/a4a3d94c-9995-4f1a-aa1b-dbb7bd545976" />ㅤ<img width="110" height="66" alt="1000072803" src="https://github.com/user-attachments/assets/1ec3cb4b-6341-4170-90af-e9c04cd8737a" />
 
 # ㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a> $\color{mediumTurquoise}˖⏖ⲇⲛⲓ : ⲟϭsⲉssⲓᴠⲉ, ⲏⲩⲣⲟⲥrⲓⲧⲉs,ⲛⲁrⲥⲓssⲓsⲧs,ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrs˖⏖$ <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>
 
