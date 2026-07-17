@@ -1,4 +1,4 @@
-ㅤㅤ<img width="850" height="400" alt="mitsugi-paradise (2)" src="https://github.com/user-attachments/assets/0e01e5f9-4cdd-47ea-80c7-d393ca118954" />
+ㅤㅤ<img width="800" height="400" alt="mitsugi-paradise (2)-enhanced" src="https://github.com/user-attachments/assets/8ebe1a04-d612-40d1-b134-5e5a98086757" />
 
 
 ㅤㅤ ㅤ ㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤ ㅤ ㅤ <img width="80" height="15" alt="zqyu1Tx" src="https://github.com/user-attachments/assets/fa166f1c-7dac-4169-ae69-8042a17c57e5" /><img width="80" height="20" alt="image" src="https://github.com/user-attachments/assets/62a75293-e2b1-4442-ac2b-89c7e45597dd" /><img width="80" height="15" alt="zqyu1Tx" src="https://github.com/user-attachments/assets/fa166f1c-7dac-4169-ae69-8042a17c57e5" />
