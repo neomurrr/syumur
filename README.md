@@ -1,15 +1,13 @@
 
-ㅤ ㅤ ㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤ ㅤ<img width="110" height="66" alt="1000072802" src="https://github.com/user-attachments/assets/0157bfb9-569e-4a2b-9f2f-859da918735f" /><img width="110" height="76" alt="1000072801" src="https://github.com/user-attachments/assets/a4a3d94c-9995-4f1a-aa1b-dbb7bd545976" /><img width="110" height="66" alt="1000072803" src="https://github.com/user-attachments/assets/1ec3cb4b-6341-4170-90af-e9c04cd8737a" />
-
-
+ㅤㅤ<img width="800" height="7" alt="tumblr_b9ff6bfd0fc3d76107235fd6df2917b0_e1fe4794_400" src="https://github.com/user-attachments/assets/2609d49a-63d1-47f4-9d38-3703d872f019" />
 
 ㅤㅤ<img width="800" height="400" alt="mitsugi-paradise (2)-enhanced" src="https://github.com/user-attachments/assets/8ebe1a04-d612-40d1-b134-5e5a98086757" />
 
 ㅤㅤ<img width="800" height="7" alt="tumblr_05ac64d1ed438a2e3ca073780f9563b5_18a88103_2048" src="https://github.com/user-attachments/assets/04ed5339-b5e8-42cf-b83d-5559ae5018f9" />
 
 
-ㅤㅤ ㅤ ㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤ ㅤ ㅤ <img width="80" height="15" alt="zqyu1Tx" src="https://github.com/user-attachments/assets/fa166f1c-7dac-4169-ae69-8042a17c57e5" /><img width="80" height="20" alt="image" src="https://github.com/user-attachments/assets/62a75293-e2b1-4442-ac2b-89c7e45597dd" /><img width="80" height="15" alt="zqyu1Tx" src="https://github.com/user-attachments/assets/fa166f1c-7dac-4169-ae69-8042a17c57e5" />
 
+ㅤ ㅤ ㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤ ㅤㅤ ㅤ<img width="110" height="66" alt="1000072802" src="https://github.com/user-attachments/assets/0157bfb9-569e-4a2b-9f2f-859da918735f" />ㅤ<img width="110" height="66" alt="1000072801" src="https://github.com/user-attachments/assets/a4a3d94c-9995-4f1a-aa1b-dbb7bd545976" />ㅤ<img width="110" height="66" alt="1000072803" src="https://github.com/user-attachments/assets/1ec3cb4b-6341-4170-90af-e9c04cd8737a" />
 
 # ㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a> $\color{mediumTurquoise}˖⏖ⲇⲛⲓ : ⲟϭsⲉssⲓᴠⲉ, ⲏⲩⲣⲟⲥrⲓⲧⲉs,ⲛⲁrⲥⲓssⲓsⲧs,ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrs˖⏖$ <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>
 
