@@ -6,6 +6,7 @@
 
 ㅤㅤ<img width="800" height="7" alt="tumblr_05ac64d1ed438a2e3ca073780f9563b5_18a88103_2048" src="https://github.com/user-attachments/assets/04ed5339-b5e8-42cf-b83d-5559ae5018f9" />
 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="25" height="25" alt="IMG_3844" src="https://github.com/user-attachments/assets/f702a734-4856-4ab4-b3f0-868008d33f42" />
 
 
 # ㅤ<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a> $\color{mediumTurquoise}˖⏖ⲇⲛⲓ : ⲟϭsⲉssⲓᴠⲉ, ⲏⲩⲣⲟⲥrⲓⲧⲉs,ⲛⲁrⲥⲓssⲓsⲧs,ⲙⲁⲛⲓⲣυⳑⲁⲧⲟrs˖⏖$ <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/277/277031mbmmfoabln.gif" width=19 height=20 border=0></a>
