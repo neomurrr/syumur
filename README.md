@@ -1,5 +1,5 @@
 
-ㅤㅤ<img width="800" height="7" alt="tumblr_b9ff6bfd0fc3d76107235fd6df2917b0_e1fe4794_400" src="https://github.com/user-attachments/assets/2609d49a-63d1-47f4-9d38-3703d872f019" />
+ㅤㅤ<img width="800" height="7" alt="tumblr_11d114c38b5312a470cb1be2b9058415_d71d613f_400" src="https://github.com/user-attachments/assets/f4faa4bb-d728-4350-b8c2-1794ac7ecb66" />
 
 ㅤㅤ<img width="800" height="400" alt="mitsugi-paradise (2)-enhanced" src="https://github.com/user-attachments/assets/8ebe1a04-d612-40d1-b134-5e5a98086757" />
 
