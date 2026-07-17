@@ -1,4 +1,4 @@
-ㅤㅤ<img width="850" height="400" alt="paradise-pilslash (1)" src="https://github.com/user-attachments/assets/2f78128f-5c8c-408f-92e6-f4ed6de9794b" />
+ㅤㅤ<img width="850" height="400" alt="mitsugi-paradise (2)" src="https://github.com/user-attachments/assets/0e01e5f9-4cdd-47ea-80c7-d393ca118954" />
 
 
 ㅤㅤ ㅤ ㅤ ㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ ㅤㅤ ㅤ ㅤ ㅤ <img width="80" height="15" alt="zqyu1Tx" src="https://github.com/user-attachments/assets/fa166f1c-7dac-4169-ae69-8042a17c57e5" /><img width="80" height="20" alt="image" src="https://github.com/user-attachments/assets/62a75293-e2b1-4442-ac2b-89c7e45597dd" /><img width="80" height="15" alt="zqyu1Tx" src="https://github.com/user-attachments/assets/fa166f1c-7dac-4169-ae69-8042a17c57e5" />
